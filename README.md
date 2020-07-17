@@ -5,4 +5,6 @@
 
  Keep calm and carry on :-)
 
+ Make plans for training tomorrow
+
  
